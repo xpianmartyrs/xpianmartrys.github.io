@@ -1,2 +1,2 @@
-## Christian Martyrs
-Christian martrys die as sheep led to the slaughter for the testimony of Jesus and God's kingdom.
+## Witness Christianity in the Faith of Christian Martyrs
+The best way to witness the Christian faith is to see the faith of Christian witnesses.
