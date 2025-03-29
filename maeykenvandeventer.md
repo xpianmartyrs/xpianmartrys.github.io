@@ -1,5 +1,5 @@
 ---
-title: Witness Christianity: Maeyken van Deventer
+title: Witness Christianity---Maeyken van Deventer
 ---
 
 # Maeyken van Deventer
